@@ -1,0 +1,2 @@
+# jr-developer
+im fresher
